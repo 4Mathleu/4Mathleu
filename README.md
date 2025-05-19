@@ -1,4 +1,4 @@
-![](https://i.pinimg.com/originals/af/07/ed/af07ed777318ec7c474804dbf7afdffb.gif)
+![](https://64.media.tumblr.com/b04468e7540dfca85fe9c13e241e1d61/c055d9533e4c2789-31/s2048x3072/62c3d84ccb0ee95e124ebba7483bc72593403f44.gifv)
 
 # 💻 Tech Stack:
 <p align="start">
