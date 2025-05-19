@@ -1,4 +1,4 @@
-![](https://cdna.artstation.com/p/assets/images/images/071/087/584/original/fatih-emir-bg-design.gif)
+![](https://i.pinimg.com/originals/af/07/ed/af07ed777318ec7c474804dbf7afdffb.gif)
 
 # 💻 Tech Stack:
 <p align="start">
